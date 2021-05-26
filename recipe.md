@@ -1,5 +1,5 @@
 ## Red Velvet Cake
-1. Preheat your oven to *350* ^:o: F (180 degrees C) and place the oven rack in the center of the oven. Butter two - 9 inch (23 cm) round cake pans and line the bottoms of the pans with parchment paper.
+1. Preheat your oven to *350* degrees F (180 degrees C) and place the oven rack in the center of the oven. Butter two - 9 inch (23 cm) round cake pans and line the bottoms of the pans with parchment paper.
 2. In a bowl, sift the flour with the salt and cocoa powder.  
 3. In the bowl of your electric stand mixer, fitted with the paddle attachment (or with a hand mixer), beat the butter until smooth. Add the sugar and beat, on medium high speed, until light and fluffy (about 3 to 4 minutes). Add the eggs, one at a time, beating well after each addition. Scrape down the sides and bottom of the bowl as needed. 
 4. Add the vanilla extract and beat until combined.
